@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **daffaaryandaru100815@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1IYADe_RVcxAEpbfpI9oYBCTenZcT418L](https://drive.google.com/drive/folders/1IYADe_RVcxAEpbfpI9oYBCTenZcT418L)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1XSO2atXW3LNdaJgIviKR3A6MeToYa2aM/view?usp=sharing](https://drive.google.com/file/d/1XSO2atXW3LNdaJgIviKR3A6MeToYa2aM/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
